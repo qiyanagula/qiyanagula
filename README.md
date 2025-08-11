@@ -10,7 +10,7 @@ hi im pie
 
 <img src="https://64.media.tumblr.com/52063edd6f5764cd038a424b9f4b1c77/d2cc09843feb4dda-90/s400x600/8fb51fc6fabab7521efe817cdac77f8c3bcae83a.jpg">
 
-he/she 18 i love many things..
+he/she 19 (20 in september) i love many things..
 
 craving money and nitro (wink) 
 
